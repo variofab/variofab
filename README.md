@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @variofab
+- 👀 I’m interested in buliding synthetic bodies and general manufacturing automation
